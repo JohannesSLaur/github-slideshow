@@ -1,1 +1,5 @@
 fdgG
+ASGsg
+Ggd
+DGRG
+GSDGG
